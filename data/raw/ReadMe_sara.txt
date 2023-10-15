@@ -1,0 +1,1 @@
+This data on Sara the turtle came from an Argos satellite and was employed pursuant to an academic exercise.
